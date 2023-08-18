@@ -1,2 +1,4 @@
 # RandomFortniteSource
-This Shit is a Random Fortnite source update it yourself ig (NOT MINE)
+I PAID 40$ for that shit try it out ig
+
+NOT UPDATET (OFFSETS IN DISCORD)
